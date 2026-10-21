@@ -34,4 +34,5 @@ German (C1) · English (B2) · French (B2) · Arabic (C2)
 
 ## 📫 Contact
 
-[LinkedIn](https://www.linkedin.com/in/noreddine-razzouk-645b40328) · open to junior actuarial and consulting roles
+- ✉️ E-Mail: [mathwithabel@gmail.com](mailto:mathwithabel@gmail.com)
+- 💼 LinkedIn: [linkedin.com/in/noreddine-razzouk-645b40328](https://www.linkedin.com/in/noreddine-razzouk-645b40328)
